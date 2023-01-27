@@ -1,2 +1,0 @@
-# Freedom1
-hi
